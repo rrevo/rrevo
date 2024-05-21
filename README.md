@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @rrevo
-- ✍️ I write at [rahulrevo.substack.com](https://rahulrevo.substack.com/)
+- ✍️ I write at [rahul.revos.name](https://www.rahul.revos.name)
 - 📫 Reach me via email rahul AT revos.name
